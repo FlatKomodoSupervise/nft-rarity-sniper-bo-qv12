@@ -1,4 +1,4 @@
-# 
+# automatic nft rarity sniper bot | royalty-calculator + gas-optimization offers the most advanced nft rarity sniper bot, with royalty-calculator and gas-optimization. Ideal for
 
 
 
